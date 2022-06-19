@@ -1,0 +1,2 @@
+# CINEMA_MANAGMENT
+COVID-19 has accelerated the adoption of corporate automation as Internet technology has progressed in the twenty-first century. During the epidemic, the use of Visitor Management Solutions in particular has expanded. Visitor Management System is a secure visitor identity management system that allows visitor information to be smoothly and electronically collected. It also aids in the storage of visitor information in a database that can be simply accessed
