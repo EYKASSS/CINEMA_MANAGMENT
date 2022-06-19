@@ -22,3 +22,11 @@ Team Member:
  
  Production Engineer – Nurul Balqis Binti Che Gani
  
+![image](https://user-images.githubusercontent.com/101732962/174481668-73ab249b-5010-46bf-8082-a5e3e3defdb3.png)
+
+
+![image](https://user-images.githubusercontent.com/101732962/174481682-5aa43359-a694-4dcf-9972-9f0edd498b94.png)
+
+
+LINK VIDEO
+https://youtu.be/NEsQfb4xWY0
